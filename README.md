@@ -1,1 +1,0 @@
-# Sameti-notes
